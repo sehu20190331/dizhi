@@ -1,7 +1,7 @@
 # 色虎影院 最新地址发布 
 ## 导 航 永 久 域 名HttpS://sehu0.com
-## ⭐️ 👉 地址一 ：HttpS://www.sehu00.com
-## ⭐️ 👉 APP下载地址 ：HttpS://www.sehu12.com
+## ⭐️ 👉 地址一 ：HttpS://www.sehu01.com
+## ⭐️ 👉 APP下载地址 ：HttpS://www.sehu14.com
 ## ⭐️ 👉 备用导航 ：HttpS://sehu1.com
 ## ‼️‼️长按复制到浏览器里面访问以上网址‼️‼️
 ## ‼️請使用Ctrl+D進行收藏本站!|电脑/Ipad/手机在线播放‼️
